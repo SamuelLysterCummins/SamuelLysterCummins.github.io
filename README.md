@@ -1,1 +1,1 @@
-# SamuelLysterCummins.github.io(index.html)
+# SamuelLysterCummins.github.io
