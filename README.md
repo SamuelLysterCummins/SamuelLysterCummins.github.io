@@ -1,1 +1,1 @@
-Link to the site: [https://SamuelLysterCummins.github.io//](https://samuellystercummins.github.io/)
+Link to pages: [https://SamuelLysterCummins.github.io//](https://samuellystercummins.github.io/)
